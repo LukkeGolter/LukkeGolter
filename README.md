@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @LukkeGolter
-- 👀 I’m interested in games, movies, programming
+- 👀 I’m interested in body building, movies, programming
 - 🌱 I’m currently learning HTML, CSS, JS
 - 📫 How to reach me: lukkegolter2576@gmail.com
 
